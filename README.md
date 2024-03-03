@@ -1,0 +1,10 @@
+Demo: https://www.youtube.com/watch?v=RRXTuDaKjco
+![Screenshot 2024-03-03 204902](https://github.com/RARES129/FII-better-at-shooting/assets/94977726/cb56edb7-2c3f-461f-90f5-c49dbddfac75)
+![Screenshot 2024-03-03 204913](https://github.com/RARES129/FII-better-at-shooting/assets/94977726/8a708ebb-f4f7-48d3-a87d-e159cc581ab3)
+![Screenshot 2024-03-03 204921](https://github.com/RARES129/FII-better-at-shooting/assets/94977726/99ccab0c-35ff-4ad8-a199-5316199edf81)
+![Screenshot 2024-03-03 204928](https://github.com/RARES129/FII-better-at-shooting/assets/94977726/099b1e10-7339-44d8-9b2b-4c896c4ae655)
+![Screenshot 2024-03-03 204937](https://github.com/RARES129/FII-better-at-shooting/assets/94977726/42c19565-bc82-4980-b819-42bf2df93b1e)
+![Screenshot 2024-03-03 204943](https://github.com/RARES129/FII-better-at-shooting/assets/94977726/62dd20a8-bdea-4539-8b5c-5b093a0a0fce)
+![Screenshot 2024-03-03 204951](https://github.com/RARES129/FII-better-at-shooting/assets/94977726/4673c710-ed32-4c8a-a89c-221837f79bdb)
+![Screenshot 2024-03-03 205005](https://github.com/RARES129/FII-better-at-shooting/assets/94977726/002e5741-d423-4d60-ad0d-08ea79cdb854)
+![Screenshot 2024-03-03 205013](https://github.com/RARES129/FII-better-at-shooting/assets/94977726/af401b92-cb6b-4789-bcb4-be94ce8af1f2)
